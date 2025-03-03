@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Balu1536
 - 👀 I’m interested in CyberSecurity and Privacy.
 - 🌱 I’m currently learning B.Tech 2nd Year Computer Science and Engineering.
-- 📫 To reach me 239y1a0536@ksrmce.ac.in
+- 📫 To reach me balasubramanyam200517@gmail.com
